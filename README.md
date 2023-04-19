@@ -5,7 +5,7 @@
 
 - 👨‍💻 For more detail, you can find me at [sylitas.com](sylitas.com)
 
-- 📫 How to reach me at **Linkedin**
+- 📫 You can reach me at **Linkedin**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
