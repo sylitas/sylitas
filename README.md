@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working as **Software Engineer**
 
-- 👨‍💻 For more detail, you can find me at [sylitas.com](sylitas.com)
+- 👨‍💻 For more detail, you can find me at [sylitas.com](https://sylitas.com)
 
 - 📫 You can reach me at **Linkedin**
 
